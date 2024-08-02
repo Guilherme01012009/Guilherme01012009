@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning technology and programming
 - 💞️ I’m looking to collaborate on don't know
 - 📫 How to reach me contadobrawlstar01012009@gmail.com
-- 😄 Pronouns:  he, his
+- 😄 Pronouns:  he, from him.
 - ⚡ Fun fact:what comes after death?
 
 <!---
